@@ -1,1 +1,1 @@
-[آموزش تصب در کانال ما](https://telegram.me/nebronTM)
+[آموزش نصب در کانال ما](https://telegram.me/nebronTM)
